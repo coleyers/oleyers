@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on my algorithm.
+I'm a student at iACADEMY that currently learning various skills from coding to music prouction.
 
 
 ## 🌐 Socials:
