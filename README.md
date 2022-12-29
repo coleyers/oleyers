@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently  learning to code and create music
+I'm currently working on my algorithm.
 
 
 ## 🌐 Socials:
